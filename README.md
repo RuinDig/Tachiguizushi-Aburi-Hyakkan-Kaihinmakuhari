@@ -1,6 +1,6 @@
 # Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari
 
-立喰い寿司ABURI百貫 ペリエ海浜幕張店
+千葉県千葉市美浜区にある立ち食い寿司店「立喰い寿司ABURI百貫 ペリエ海浜幕張店」
 
 ![Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_001.jpg](https://raw.githubusercontent.com/RuinDig/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari/refs/heads/main/Photos/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_001.jpg)
 
