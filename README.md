@@ -150,15 +150,15 @@
 
 ![Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_074.jpg](https://raw.githubusercontent.com/RuinDig/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari/refs/heads/main/Photos/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_074.jpg)
 
-![Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_075.JPG](https://raw.githubusercontent.com/RuinDig/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari/refs/heads/main/Photos/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_075.JPG)
+![Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_075.jpg](https://raw.githubusercontent.com/RuinDig/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari/refs/heads/main/Photos/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_075.jpg)
 
-![Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_076.JPG](https://raw.githubusercontent.com/RuinDig/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari/refs/heads/main/Photos/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_076.JPG)
+![Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_076.jpg](https://raw.githubusercontent.com/RuinDig/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari/refs/heads/main/Photos/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_076.jpg)
 
-![Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_077.JPG](https://raw.githubusercontent.com/RuinDig/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari/refs/heads/main/Photos/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_077.JPG)
+![Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_077.jpg](https://raw.githubusercontent.com/RuinDig/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari/refs/heads/main/Photos/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_077.jpg)
 
-![Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_078.JPG](https://raw.githubusercontent.com/RuinDig/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari/refs/heads/main/Photos/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_078.JPG)
+![Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_078.jpg](https://raw.githubusercontent.com/RuinDig/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari/refs/heads/main/Photos/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_078.jpg)
 
-![Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_079.JPG](https://raw.githubusercontent.com/RuinDig/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari/refs/heads/main/Photos/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_079.JPG)
+![Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_079.jpg](https://raw.githubusercontent.com/RuinDig/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari/refs/heads/main/Photos/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_079.jpg)
 
 ![Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_080.jpg](https://raw.githubusercontent.com/RuinDig/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari/refs/heads/main/Photos/Tachiguizushi-Aburi-Hyakkan-Kaihinmakuhari_080.jpg)
 
